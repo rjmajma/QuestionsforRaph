@@ -1,8 +1,8 @@
 
 #### AskRaph
 
-This is not an advice column. But, I will answer your questions. I don't promise that the answers will be any good, but I'll try to make them a little funny. 
-any all questions. 
+This is not an advice column. But, I will answer your questions. I don't promise that the answers will be any good, but I'll try to find the right balance between schmaltzy and funny. Like an episode of Community. 
+
 
 #### Disclaimer
 
